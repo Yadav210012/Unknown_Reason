@@ -16,8 +16,8 @@ Done bot was successfully imported, for conformation check command section.
 
 Link : https://github.com/Yadav210012/Unknown_Reason
 
-## Coder Ajinkya :
+## Credit - Coder Ajinkya :
 
-![](https://www.linkpicture.com/q/IMG_20230222_215854_340.jpg)
+![](https://www.linkpicture.com/view.php?img=LPic65050f3616b03691756073)
 
 Telegram :- [Unknown Reason](https://t.me/Unknown_Reason)
